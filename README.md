@@ -1,0 +1,1 @@
+Ćao ja sam Šnicla
